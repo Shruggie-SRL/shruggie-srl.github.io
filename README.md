@@ -1,3 +1,5 @@
 # shruggie-srl.github.io
 
-Pages ¯\_(ツ)_/¯
+Pages 
+
+¯\\___(ツ)___/¯
